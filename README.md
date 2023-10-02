@@ -1,1 +1,1 @@
-this is git learning. Welcomed.
+sdm,sm,f,smd,smd,s.
